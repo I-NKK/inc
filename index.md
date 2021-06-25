@@ -3,5 +3,17 @@ Pen Gang Welcome.
     Youtube link is here 
     https://www.youtube.com/channel/UCPfO9INs_kTkPOcff-TELGA
    Enjoy!
-   I upload every wednesday![IMG_0110](https://user-images.githubusercontent.com/86448154/123357903-11e07000-d530-11eb-9369-04255fbda148.JPG)
+   I upload every wednesday!
+   
+   
+   
+   
+   
+    Where i play friday night funkin
+    https://snipergaming888.github.io/mods/
+    
+    Where i edit my videos
+    https://clipchamp.com/en/video-editor/
+    
+    
 
